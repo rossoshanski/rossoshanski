@@ -1,1 +1,1 @@
-### :zap: I’m currently working on [Rush Analytics](https://rush-analytics.com/) / Rush Agency 
+### :zap: I’m currently working in [Rush Analytics](https://rush-analytics.com/) / Rush Agency 
